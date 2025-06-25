@@ -1,0 +1,1 @@
+# bemol-email-assets
